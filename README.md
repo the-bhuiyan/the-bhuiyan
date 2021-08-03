@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @the-bhuiyan 🔥
 - 👀 I’m doing my bachelor in mathematics at University of Portsmouth 😉
 - 🌱 I’m currently learning Flutter 🚀
-- 💞️ I’m looking to collaborate on any volunteering 😊
+- 💞️ I love programming and I’m looking to collaborate on any volunteering 😊
 - 📫 How to reach me "aftabbhuiyan13@gmail.com" 
 
 <!---
