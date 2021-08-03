@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @the-bhuiyan 🔥
-- 👀 I’m interested in android development as well as web development 😉
+- 👀 I’m doing my bachelor on Maths in University of Portsmouth 😉
 - 🌱 I’m currently learning Flutter 🚀
 - 💞️ I’m looking to collaborate on any volunteering 😊
 - 📫 How to reach me "aftabbhuiyan13@gmail.com" 
