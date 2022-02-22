@@ -3,4 +3,4 @@
 - 🌱 Want to be a Maths Teacher 🚀
 - 💞️ I'm a hobbist Programmer 😊
 - 📫 How to reach me "aliaftab.bhuiyan@hotmail.com" 👋
-- 🌐 More Info ? aftabbhuiyan.me : BYE 😉
+- 🌐 More Info ? www.aftabbhuiyan.me : BYE 😉
