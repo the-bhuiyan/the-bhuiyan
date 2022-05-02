@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @aliaftab-bhuiyan 🔥
 - 👀 I’m doing my bachelor in mathematics at University of Portsmouth 😉
-- 🌱 Want to be a Maths Teacher 🚀
+- 🌱 Want to be a Teacher 🚀
 - 💞️ I'm a hobbist Programmer 😊
 - 📫 How to reach me "aliaftab.bhuiyan@hotmail.com" 👋
 - 🌐 More Info ? www.aftabbhuiyan.me : BYE 😉
